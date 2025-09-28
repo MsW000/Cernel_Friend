@@ -75,8 +75,8 @@
 ---
 
 ### 📫 Contacts
-- 📧 Email: dmitry@example.com *(замени на реальный)*
-- 💬 Telegram: [@yourhandle](https://t.me/yourhandle) *(замени на реальный)*
+- 📧 Email: inakentius@gmail.com
+- 💬 Telegram: [@ms_W_0001]![alt text](image.png)
 
 ---
 
